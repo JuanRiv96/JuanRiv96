@@ -27,6 +27,6 @@ El cursar el bootcamp de SoyHenry me permitió aprender a utilizar las siguiente
 - CSS
 
 ####  ¡¡ No dudes en contactarme !!
-Mi [Linkedin](www.linkedin.com/in/JuanJosé-RiveraRamírez)
-Email jjrr0213@gmail.com
-Telefono (+52) 744-254-0108
+-Mi [Linkedin](www.linkedin.com/in/JuanJosé-RiveraRamírez)
+-Email jjrr0213@gmail.com
+-Telefono (+52) 744-254-0108
